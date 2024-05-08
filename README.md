@@ -1,1 +1,1 @@
-![xo_logo_github](https://github.com/nikkeisadev/.XO/assets/137056695/44fc02d7-6b7e-4933-8451-fddbe2e8700d)
+![xo_logo_github-removebg-preview](https://github.com/nikkeisadev/.XO/assets/137056695/2e0e16ca-abce-4ca5-83ae-73edf1c87b0c)
